@@ -10,3 +10,4 @@ A new skill I learned is how to video edit using Davinci resolve. An interesting
 
 
 ## My spotify Playlist 
+https://open.spotify.com/playlist/7ijV13crRA2bcx3piadQ8s?si=1nsJtOPmQt6-QAMhmc5gzA
